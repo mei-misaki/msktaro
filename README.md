@@ -1,2 +1,2 @@
-## Selam! Misaki Taro olmak kolay değil. Tsubasa'nın yan çarı ama daha iyisi :)
-![](https://komarev.com/ghpvc/?username=msktaro&style=plastic&color=872f59)
+## Selam! Misaki Mei: Artık kişi kim?
+![](https://komarev.com/ghpvc/?username=mei-misaki&style=plastic&color=872f59)
